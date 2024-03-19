@@ -3,7 +3,7 @@ X1na Exploit Spoofer!
 </h1>
 <p align="center"> 
   <kbd>
-<a href="https://ibb.co/nbVZQcM"><img src="https://i.ibb.co/MsjWPVk/photo-2023-07-11-00-59-54.jpg" alt="photo-2023-07-11-00-59-54" border="0"></a>
+<a href="https://ibb.co/xX8MY9J"><img src="https://i.ibb.co/VJpvxn2/2.jpg" alt="2" border="0"></a>
   </kbd>
 </p>
 <p align="center">
