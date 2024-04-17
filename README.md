@@ -18,7 +18,7 @@ X1na Exploit Spoofer!.
     <br>
 </p>
 <h1 align="center">
- https://t.me/x1naa2<br>
+<a href="https://t.me/hackingtoolsf">Telegram</a><br>
 🔱 Join Telegram for support and contact 🔱
 </h1>
 **NOTE:** 
